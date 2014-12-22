@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-CERTAINE Tragicall Diſcourſes written oute of Frenche and Latin, by Geffraie Fenton, no. leſſe profi
+
 1. To the righte honorable and vertuous Ladie, the Ladye Marye Sydney, Geffraye Fenton VViſheth a happie encreaſe of honor and yeares in this lyfe.
 
 1. Syr Iohn Conway Knyght to the readers in prayſe of the Tranſlator.
